@@ -15,7 +15,8 @@ Tashkent Institute of Finance
 ### Skills
 _Languages_: English(Upper-intermidiate)
            Russian(Upper-intermidiate)
-           Uzbek(Native)
+           Uzbek(Native) 
+           
 
 
 
