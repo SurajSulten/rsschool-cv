@@ -1,5 +1,5 @@
 # Sultonov Suroj 
-19 years old, was bor on 15 february 2002 
+20 years old, was bor on 15 february 2002 
 Accomodation: Tashkent 
 
 ### Personal details 
