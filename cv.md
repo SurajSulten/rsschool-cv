@@ -10,7 +10,7 @@ Accomodation: Tashkent
 Tashkent Institute of Finance
 
 ### Work experience 
-1 and a half year worked as a teacher of an English language
+1 year worked as a teacher of an English language
 
 ### Skills
 _Languages_: English(Upper-intermidiate)
